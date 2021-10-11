@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @dnanaklouvi
+- 👀 I’m interested in #tech, #music, #digitalaudio and #gaming. Throw in some #code too!
+- 🌱 I’m currently learning anything related to #Global and new languages generally.
+- 💞️ I’m looking to collaborate on - you guessed it - almost anything!
+- 📫 How to reach me: try out Teams or LinkedIn - I'm also on Workplace too!
